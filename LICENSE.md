@@ -1,4 +1,4 @@
-# 
+# Turbo grid trading bot for futures extensiones para Mac OS | Nativo grid trading bot for futures extensiones para PC Windows. Con conectividad Web3 y intercambios de tokens — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
